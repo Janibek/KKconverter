@@ -8,4 +8,4 @@ Convert text from Kazakh Arabic to Cyrillic script
 
  Author: Janibek Sheryazdan
 
- Contact: +86 18290936662, QQ 616575108, zhanibek@qq.com
+ Contact: +86 18509915440, QQ 616575108, zhanibek@qq.com
